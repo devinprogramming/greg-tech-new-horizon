@@ -1,1 +1,1 @@
-# ggreg-tech-new-horizon
+# Greg Tech: New Horizon
